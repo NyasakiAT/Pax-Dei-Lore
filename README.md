@@ -79,7 +79,7 @@
 - First redeemer born under the sun, rather than having descended from heaven
 - "The Deceiver" laid out a trap for him and showed him he had yet more to gain
 - Raised the Sons of the Light, the great host of paladins who had fought with him and Phaionios during the great purge of Evil.
-- His desire for the riches kept by the dungeons beneath the mountain and the pride welling up inside him at the sight of thousands of his holy knights standing before him caused him to disregard God’s peace.
+- His desire for the riches kept by the dungeons beneath the mountain and the pride welling up inside him caused him to disregard God’s peace.
 - The Sons of the Light rode through the gates of Medula, descending into the mountain, Neither he, nor a single one of his shining paladins, was ever seen again.
 
 #### Sixth redeemer , Oroael
