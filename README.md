@@ -93,7 +93,7 @@
 
 ### Corrupted
 
-#### Rex Mundi
+#### Rex Mundi ("The Deciever")
 
 - The devil according to the Sethians
 - Created the temporal realm to lure souls from heaven
