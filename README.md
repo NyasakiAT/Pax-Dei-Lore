@@ -39,6 +39,11 @@
 
 #### Regions
 
+- Gallia
+- Gothia
+- Iberia
+- Anatolia
+
 #### Dioceses
 
 #### Mountains
